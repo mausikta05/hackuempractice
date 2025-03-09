@@ -1,2 +1,1 @@
-﻿# hackuempractice
 Mausikta Kheto
